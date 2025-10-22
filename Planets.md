@@ -10,11 +10,11 @@ ______
 ## write the prologue that remains unfinished, grateful for your presence.
 
 
-Moon — a presence visible to the human eye, seemingly within reach yet forever distant, symbolizing wholeness and perfection.
+## Moon — a presence visible to the human eye, seemingly within reach yet forever distant, symbolizing wholeness and perfection.
 
 stars- A single star, though as tiny as a grain of sand, shines with quiet devotion, offering its faint light. Gradually, through the laws of attraction and imitation, other stars draw near. Suddenly, countless stars fill the sky—an endless brilliance turning darkness into a continuous, firework-like glow.
 
-Mercury-
+## Mercury-
 It looks like Earth—h
 yet it is not our home.
 So close to the Sun,
@@ -26,7 +26,7 @@ a mirror that pretends warmth—
 a planet that seems like home,
 but never will be.
 
-Venus- 
+## Venus- 
 So like my home, the Earth—
 in shape, in silence, in the curve of its light.
 Yet it lacks that dazzling shimmer
@@ -37,7 +37,7 @@ monotone, eternal,
 so bright
 that no one can look for long.
 
-Earth-
+## Earth-
 Eternal, profound homeland of love—
 no one could ever take your place in my heart.
 I’m sorry—
@@ -53,7 +53,7 @@ a little more chance
 to make things right again.
 
 
-Mars-
+## Mars-
 No radiant beauty adorns your face—
 all is buried beneath dust and rust-red plains.
 Yet you have become
@@ -63,7 +63,7 @@ to keep the flame alive,
 to carry the last breath
 of a fading civilization.
 
-Jupiter-
+## Jupiter-
 he illusion of Authority
 In the far reaches of the solar system,
 a colossal world turns in silence-
