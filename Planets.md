@@ -90,6 +90,18 @@ into a marble of patterns withour substance.
 
 
 ## Saturn-
+The planet of Boundaries, it is the monarch of moons within the solar realm, 
+yet bound tightly by its own radiant rings.
+Those interlocking halos,
+Chains of time themselves,
+Encircle a kingdom with no ground to stand upon.
+There,
+Radiation speaks as judgment,
+And coldness reigns as the price of order.
+Saturn wears distance as its dignity, 
+And solitude as its crown,
+its uniqe-
+Lies in what cannot be approached.
 
 ## Uranus-  is both awesome and terrible!
 ## Neptune
