@@ -1,11 +1,21 @@
-# write the prologue that remains unfinished, grateful for your presence.
+
+_____
+
+# Eight planets trace their paths, none vying for place;
+# When humans keep their word, their hearts find peace.
+# The order of the cosmos lies not in distance, 
+# But in the gravity of sincerity that binds all things.
+______
+
+## write the prologue that remains unfinished, grateful for your presence.
+
 
 Moon — a presence visible to the human eye, seemingly within reach yet forever distant, symbolizing wholeness and perfection.
 
 stars- A single star, though as tiny as a grain of sand, shines with quiet devotion, offering its faint light. Gradually, through the laws of attraction and imitation, other stars draw near. Suddenly, countless stars fill the sky—an endless brilliance turning darkness into a continuous, firework-like glow.
 
 Mercury-
-It looks like Earth—
+It looks like Earth—h
 yet it is not our home.
 So close to the Sun,
 and still it cannot melt
