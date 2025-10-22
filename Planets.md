@@ -1,4 +1,8 @@
 
+<p align="center">
+<img src="./assets/images/logo.png" alt="Lori Framework Logo" width="500">
+</p>
+
 _____
 
 # Eight planets trace their paths, none vying for place;
