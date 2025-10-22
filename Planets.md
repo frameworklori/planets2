@@ -10,9 +10,11 @@ ______
 ## write the prologue that remains unfinished, grateful for your presence.
 
 
-## Moon — a presence visible to the human eye, seemingly within reach yet forever distant, symbolizing wholeness and perfection.
+## Moon — 
+a presence visible to the human eye, seemingly within reach yet forever distant, symbolizing wholeness and perfection.
 
-stars- A single star, though as tiny as a grain of sand, shines with quiet devotion, offering its faint light. Gradually, through the laws of attraction and imitation, other stars draw near. Suddenly, countless stars fill the sky—an endless brilliance turning darkness into a continuous, firework-like glow.
+## stars- 
+A single star, though as tiny as a grain of sand, shines with quiet devotion, offering its faint light. Gradually, through the laws of attraction and imitation, other stars draw near. Suddenly, countless stars fill the sky—an endless brilliance turning darkness into a continuous, firework-like glow.
 
 ## Mercury-
 It looks like Earth—h
