@@ -11,7 +11,7 @@ _____
 # But in the gravity of sincerity that binds all things.
 ______
 
-## write the prologue that remains unfinished, grateful for your presence.
+                                             write the prologue that remains unfinished, grateful for your presence.
 
 
 ## Moon — 
