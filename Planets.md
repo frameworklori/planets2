@@ -2,7 +2,7 @@
 _____
 
 # Eight planets trace their paths, none vying for place;
-# When humans keep their word, their hearts find peace.
+# When humans keep their word and boundary, their hearts find peace.
 # The order of the cosmos lies not in distance, 
 # But in the gravity of sincerity that binds all things.
 ______
