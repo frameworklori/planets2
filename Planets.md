@@ -100,8 +100,8 @@ Radiation speaks as judgment,
 And coldness reigns as the price of order.
 Saturn wears distance as its dignity, 
 And solitude as its crown,
-its uniqe-
-Lies in what cannot be approached.
+its uniqeeness 
+lies beneath its radiant rings.
 
 ## Uranus-  is both awesome and terrible!
 ## Neptune
