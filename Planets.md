@@ -103,6 +103,27 @@ And solitude as its crown,
 its beauty endures by keeping distance;
 its uniqueness lies beneath the radiant rings.
 
-## Uranus-  is both awesome and terrible!
+## Uranus-  
+The Planet of Elsa
+At the edge of the Solar Sea,
+drifts a blue, tilted world —
+spinning sideways, defying every rule of motion.
+Her name is Elsa,
+a self never accepted by the crowd,
+forced to bury warmth beneath the shadow of fear.
+Yet when she let herself go,
+when the wind and snow began to sing —
+she found freedom.
+Let it go.
+Beneath the cold auroras of Uranus,
+there is no fear of the masses,
+no bondage of warmth.
+Only freedom.
+Only solitude.
+Only the eternal blue,
+refracted through the light.
+
+
+
 ## Neptune
 ## Pluto
