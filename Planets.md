@@ -1,6 +1,6 @@
 
 <p align="center">
-<img src="./assets/images/logo.png" alt="Lori Framework Logo" width="500">
+<img src="assets/images/The law of cosmic balance.png" alt="The law of cosmic balance" width="500">
 </p>
 
 _____
