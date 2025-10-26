@@ -123,6 +123,16 @@ Only solitude.
 Only the eternal blue,
 refracted through the light.
 
+## For You, Who Prefer Uranus Over All Others 
+- You are drawn to uniqueness and to things that are beautifully different.
+Yet inside, you carry a quiet loneliness —
+often overlooked, often misunderstood,
+always keeping yourself low-key.
+
+But deep within you lives a soft,
+undeniable romance that never fades.
+
+
 
 
 ## Neptune
