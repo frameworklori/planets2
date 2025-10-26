@@ -128,12 +128,10 @@ refracted through the light.
 Yet inside, you carry a quiet loneliness —
 often overlooked, often misunderstood,
 always keeping yourself low-key.
-
 But deep within you lives a soft,
 undeniable romance that never fades.
-
-
-
+You stand out because when the world looks to Mars,
+you choose Uranus instead.
 
 ## Neptune
 ## Pluto
