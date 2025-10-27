@@ -68,6 +68,21 @@ the vessel of our desperate voyage—
 to keep the flame alive,
 to carry the last breath
 of a fading civilization.
+## For Those Who Favor Mars
+
+• You carry a bold spirit of adventure
+• Courageous and driven to win
+• Always eager to conquer the unknown
+
+But sometimes, you forget to look back at yourself.
+If humanity does not change its own flaws,
+then even a new planet won’t save us.
+
+We would only repeat the same mistakes,
+again and again — an endless cycle.
+
+So ask yourself:
+How many Mars do we have left to call home?
 
 ## Jupiter-
 he illusion of Authority
