@@ -148,5 +148,41 @@ undeniable romance that never fades.
 You stand out because when the world looks to Mars,
 you choose Uranus instead.
 
-## Neptune
+## Neptune – Lord of the Sea
+
+Color of the Sea,
+An unreachable deep blue—
+serene yet unfathomable,
+where those who draw near
+can only gaze at your shadow
+rippled upon the surface.
+
+Diamond Rain is grievance under pressure.
+In the depths of your high-pressured soul,
+you compress pain into light,
+each drop falling
+and crystallizing into a heart
+that still shines after cooling.
+
+The Eye of the Storm,
+the vortex of your consciousness and soul—
+there the tempests never rest,
+spinning in solitude,
+where the world’s most silent place
+conceals its greatest power.
+
+You, the deep-blue one,
+embody the awareness that longs for freedom.
+Within your swirling blue, you raise the storm,
+your cold distance turning all away.
+
+Diamond tears—
+your own liberation,
+your way to release emotion,
+to hide the truth of a heart too hot to bear.
+The world calls you cold,
+yet you only wish to keep them
+from seeing the ceaseless fire
+that burns beneath the sea.
+
 ## Pluto
