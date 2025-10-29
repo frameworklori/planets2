@@ -149,7 +149,7 @@ You stand out because when the world looks to Mars,
 you choose Uranus instead.
 
 ## Neptune – 
-- Lord of the Sea
+Lord of the Sea
 Color of the Sea,
 An unreachable deep blue—
 serene yet unfathomable,
