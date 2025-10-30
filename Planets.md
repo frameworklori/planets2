@@ -185,4 +185,27 @@ yet you only wish to keep them
 from seeing the ceaseless fire
 that burns beneath the sea.
 
-## Pluto
+## Pluto-
+The Petite Ice Goddess
+
+Beneath her frozen seas,
+a transparent heart of ice beats softly in silence.
+
+She is embraced by layers of snow, frost, sleet, rime, and hail,
+guarded by icy volcanoes and a heart-shaped plain.
+Sunlight pierces her crystalline world,
+refracting into seven-colored auroras,
+like lanterns of the deep, cold yet entrancing.
+
+Her rhythm resonates with Uranus’ orbit,
+a secret harmony drifting through the depths of space —
+serene yet tender,
+a waltz of ice and eternity.
+
+Her beauty
+is a frozen temptation —
+coldly elegant, yet subtly alluring,
+hiding warmth within her silence.
+She is a wonder to be admired from afar,
+never to be profaned by touch.
+
