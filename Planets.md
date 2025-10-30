@@ -41,7 +41,7 @@ Venus stays veiled
 in a single, blinding gold—
 monotone, eternal,
 so bright
-that no one can look for long.
+that the gaze itself becomes pain.
 
 ## Earth-
 Eternal, profound homeland of love—
@@ -96,7 +96,7 @@ only drifting clouds of hydrogen and helium,
 churning under endless pressure.
 Heat rises from within, 
 entwining with the cold from above=
-their clash weavingribbons of eternal wind.
+their clash weaving ribbons of eternal wind.
 white as frost, brown and bronze,
 those belts of air are like the robes of a sky-king
 wrapping the entire sphere
@@ -206,6 +206,6 @@ Her beauty
 is a frozen temptation —
 coldly elegant, yet subtly alluring,
 hiding warmth within her silence.
-She is a wonder to be admired from afar,
-never to be profaned by touch.
+She is a wonder to be admired from afar-
+never to be touched.
 
