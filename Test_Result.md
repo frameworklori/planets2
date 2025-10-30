@@ -1,5 +1,5 @@
 
-# Humanity-the brith of civillzation, its arrogance and prejudice, its fall, and its awakening once again.
+# Humanity-the brith of civillzation, its arrogance and prejudice, its fall, and its awakening once again. (projective self-integration)
 
 ------
 
@@ -46,6 +46,7 @@
 
 ## PLUTO: TRANSFORMATION/REBIRTH
 (In the stillness beneath the ice, when sunlight breaks through the frozen hearts, it scatters into seven-colored auroras-and from that light , new hope is born)
+
 
 
 
