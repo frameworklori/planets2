@@ -1,4 +1,4 @@
-# Humanity-the brith of civillzation, its arrogance, its fall, and its awakening once again.
+# Humanity-the brith of civillzation, its arrogance and prejudice, its fall, and its awakening once again.
 
 ## MOON: 
 
@@ -21,6 +21,7 @@
 ## NEPTUNE:
 
 ## PLUTO:
+
 
 
 
